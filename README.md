@@ -1,2 +1,2 @@
 # 99-Bottles-of-Beer
-🍻 Just for fun
+🍻 Just for fun ¯\_(ツ)_/¯
